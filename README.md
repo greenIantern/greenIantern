@@ -7,6 +7,6 @@
 
 ⠀⠀ $\color{#8a8a82}{\textsf{no}}$⠀ $\color{#7c7c6f}{\textsf{evil}}$⠀  $\color{#6d7157}{\textsf{shall}}$⠀ $\color{#5f7242}{\textsf{escape}}$⠀ $\color{#3b4b36}{\textsf{my}}$⠀ $\color{#363d38}{\textsf{𝓼ight.}}$
 
-⠀⠀⠀⠀⠀⠀ $\color{#3b4b36}{\textsf{𝓻}}$<a href="https://rentry.co/awaked">entry</a>⠀⠀⠀⠀ $\color{#617343}{\textsf{𝓪}}$<a href="https://hyrule.atabook.org/">tabook</a>
+⠀⠀⠀⠀⠀⠀⠀ $\color{#3b4b36}{\textsf{𝓻}}$<a href="https://rentry.co/awaked">entry</a>⠀⠀⠀⠀ $\color{#617343}{\textsf{𝓪}}$<a href="https://hyrule.atabook.org/">tabook</a>
 
 <br clear="left">
