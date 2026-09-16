@@ -1,7 +1,7 @@
 <img src="https://file.garden/Zx4tbq1Z7kthgAaN/Untitled107_20260916143051.png" width="320" align="left">
 
 <br><br><br>
-⠀in⠀brightest⠀𝓭ay,⠀in⠀darkest⠀𝓷ight,
+⠀in⠀brightest⠀𝓭ay,⠀in⠀blackest⠀𝓷ight,
 
 ⠀⠀no⠀evil⠀shall⠀escape⠀my⠀𝓼ight.
 
